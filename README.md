@@ -1,2 +1,0 @@
-# suresh-pandipati-portfolio
-Portfolio 
